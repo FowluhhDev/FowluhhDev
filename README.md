@@ -1,5 +1,6 @@
-👋 hello everyone, its me fowluhhdev!<br>
-💬 i code in c++ mostly, but i know python.<br>
-🎮 i do a lot of game development and have made some cool projects in the past<br>
-💻 i own a Lenovo ThinkPad E590 and a Lenovo IdeaPad Flex 3 Chrome.<br>
-📞 you can contact me on discord at `fowluhh`
+👋 goodbye everyone, its NOT me fowluhhdev!<br>
+💬 i code in french-- mostly, but i know whython.<br>
+🎮 i dont do a lot of video destruction and have made some boring PROEJCTsfrwgv AND ZULOS in the past<br>
+💻 i own a Leyesvo StopThinking-Pad C5313i141EEEEE90 and a Leyesvo NoIdeas-Pad Not flexible -3 Firefox.<br>
+📞 you can contact me on ZoneChat® at `fowluhh_12938274(283832123uniqueuserid:934823)`
+😍 THATS SUCH A CLOCK IT????
